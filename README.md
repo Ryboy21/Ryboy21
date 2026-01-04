@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ryboy21
+- 👋 Hi, I’m @RileyEastman26
 - 👀 I’m interested in ... Business/ Project Management
 - 🌱 I’m currently learning ... CAPM
 - 💞️ I’m looking to collaborate on ... projects
